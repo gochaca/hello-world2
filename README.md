@@ -1,5 +1,9 @@
 # hello-world2
 
-Hi everyone!
+Ok my friend I think you know how to create a branch, merge request, pull request and sucesffully merge it.  So whats next? 
 
-This is me trying out my first branch with no assitance or anything! I can get into this! <3
+Do you want to create a website to showcase who you are personally and professionally? Is it about that time? What do you need to do to get there? 
+
+Finish your workbook lots of good insight there. 
+
+get some exercise in for realzies. 
